@@ -5,3 +5,5 @@
 1. Elsa Aiziyah — 25/572243/PPA/07187
 2. Bhima Fairul Rifqi — 26/579939/PPA/07301
 3. Serly Eldina — 26/589324/PPA/07352
+
+Akses output di sini: https://drive.google.com/file/d/16l4U_BClgoYKGI5VfVNOFkFJdMYhjWA4/view?usp=sharing
